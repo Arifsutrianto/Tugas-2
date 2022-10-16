@@ -1,0 +1,8 @@
+![perulangan for-1](https://user-images.githubusercontent.com/115104656/196037390-03bb69bf-30a7-4d18-ae74-cfabaf14137f.png)
+![perulangan for-2](https://user-images.githubusercontent.com/115104656/196037396-058f43e5-be91-4268-9675-511a352b9577.png)
+![perulangan for-3](https://user-images.githubusercontent.com/115104656/196037398-4031cabc-5acf-43df-9bec-d4828ed999f2.png)
+![perulangan for-4](https://user-images.githubusercontent.com/115104656/196037400-32fe5ca7-684b-4392-bfd5-03595547a680.png)
+![perulangan for-5](https://user-images.githubusercontent.com/115104656/196037405-c2ea42a4-da5b-49a1-b2a0-6c7185d114da.png)
+![perulangan for-6](https://user-images.githubusercontent.com/115104656/196037408-d6d68516-6b6d-4530-ab0a-2aaedd069349.png)
+![perulangan for-7](https://user-images.githubusercontent.com/115104656/196037410-dfde8924-440a-487c-b54a-753fd7dead1d.png)
+![perulangan for-8](https://user-images.githubusercontent.com/115104656/196037411-8b51c876-54ae-4a74-ad90-0ce54c4ea366.png)
