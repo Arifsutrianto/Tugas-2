@@ -1,0 +1,8 @@
+![percabangan if-1](https://user-images.githubusercontent.com/115104656/196037277-af19bd43-1bca-43b5-9fd1-66171c0b4cff.png)
+![percabangan if-2](https://user-images.githubusercontent.com/115104656/196037281-9d99459a-6ad4-4e7d-8165-b9965621661a.png)
+![percabangan if-3](https://user-images.githubusercontent.com/115104656/196037283-0ec4862b-0e99-4f72-ba2f-8b59b37845e7.png)
+![percabangan if-4](https://user-images.githubusercontent.com/115104656/196037285-1bf772bd-243d-4733-8037-009fb91d40b9.png)
+![percabangan if-5](https://user-images.githubusercontent.com/115104656/196037286-ac2313a1-33fd-4519-a3be-b1e4fcf8a1c3.png)
+![percabangan if-6](https://user-images.githubusercontent.com/115104656/196037291-7568e0c2-c8f0-4c9f-8946-6f807e5a132c.png)
+![percabangan if-7](https://user-images.githubusercontent.com/115104656/196037292-b5222557-2344-4d3a-877b-3fb0e1a483d6.png)
+![percabangan if-8](https://user-images.githubusercontent.com/115104656/196037295-5fc7e071-b930-4b14-9de7-28fb2308dad1.png)
