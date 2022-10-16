@@ -1,0 +1,7 @@
+![Soal permasalahan di uts-1](https://user-images.githubusercontent.com/115104656/196020272-3bd48351-9a51-434e-9275-99fbe4e5923d.png)
+![Soal permasalahan di uts-2](https://user-images.githubusercontent.com/115104656/196020273-fff1e44e-398b-4e98-bf5c-bdf7a6c2044b.png)
+![Soal permasalahan di uts-3](https://user-images.githubusercontent.com/115104656/196020276-813ecde4-62f6-43a7-ac9a-d977fc48946c.png)
+![Soal permasalahan di uts-4](https://user-images.githubusercontent.com/115104656/196020277-ff8e426c-966d-4d61-a409-9c35f1a6fc34.png)
+![Soal permasalahan di uts-5](https://user-images.githubusercontent.com/115104656/196020278-2ccf0ef7-b288-4ffc-9290-d61315e6378c.png)
+![Soal permasalahan di uts-6](https://user-images.githubusercontent.com/115104656/196020279-a0aae6aa-1f5a-43ea-b383-ecf4e0c62a4c.png)
+![Soal permasalahan di uts-7](https://user-images.githubusercontent.com/115104656/196020281-b76cbf47-d8f1-4054-b972-9ebdb3e1e695.png)
