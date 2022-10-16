@@ -1,0 +1,8 @@
+![Membaca csv-1](https://user-images.githubusercontent.com/115104656/196037716-5d89c777-793b-4250-81b9-fb0f5dd0dd4b.png)
+![Membaca csv-2](https://user-images.githubusercontent.com/115104656/196037723-79c18565-8835-4d8c-952d-5055ce42fe51.png)
+![Membaca csv-3](https://user-images.githubusercontent.com/115104656/196037728-99086f88-6ae3-4b13-8f1f-256a1ef07b99.png)
+![Membaca csv-4](https://user-images.githubusercontent.com/115104656/196037730-3ee8b0fb-b318-421e-bfe6-ce4cb882135c.png)
+![Membaca csv-5](https://user-images.githubusercontent.com/115104656/196037731-f4dbcaaf-afa5-44d6-b1e2-fd1e5b7d3745.png)
+![Membaca csv-6](https://user-images.githubusercontent.com/115104656/196037736-5d6c2def-475e-4463-b9ca-24729f185759.png)
+![Membaca csv-7](https://user-images.githubusercontent.com/115104656/196037738-50ab86e9-411e-418c-87c2-598edb365813.png)
+![Membaca csv-8](https://user-images.githubusercontent.com/115104656/196037739-505709d0-0640-4752-88c7-9ceb89e891be.png)
