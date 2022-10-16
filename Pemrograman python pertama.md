@@ -1,0 +1,7 @@
+![pemrograman python pertama-1](https://user-images.githubusercontent.com/115104656/196025363-e4819f9b-699a-4ade-88cc-6e2723da5691.png)
+![pemrograman python pertama-2](https://user-images.githubusercontent.com/115104656/196025370-5e6297de-27ab-4e89-831d-3ce4c511a7f4.png)
+![pemrograman python pertama-3](https://user-images.githubusercontent.com/115104656/196025374-5a7f2954-5414-410e-81c0-920e114c8cc1.png)
+![pemrograman python pertama-4](https://user-images.githubusercontent.com/115104656/196025375-1881dc8a-c6e7-45e9-8069-43290622dc2a.png)
+![pemrograman python pertama-5](https://user-images.githubusercontent.com/115104656/196025379-914fa2f1-d04d-49a1-a354-87d173af9eef.png)
+![pemrograman python pertama-6](https://user-images.githubusercontent.com/115104656/196025381-717f8746-e1f1-40b6-8bba-ebd091bf2b7a.png)
+![pemrograman python pertama-7](https://user-images.githubusercontent.com/115104656/196025382-3824c6bd-6cec-444d-8314-8b901ccf48a0.png)
