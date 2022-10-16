@@ -1,0 +1,5 @@
+![kecepatan rossi-1](https://user-images.githubusercontent.com/115104656/196042268-eb74586a-585e-4565-95d6-4add8cce585c.png)
+![kecepatan rossi-2](https://user-images.githubusercontent.com/115104656/196042278-9cf1abf3-b1a5-467b-bcf8-bf1437f0ff9e.png)
+![kecepatan rossi-3](https://user-images.githubusercontent.com/115104656/196042281-87614e9c-7521-4f23-a8a8-ecbef0b5b0f7.png)
+![kecepatan rossi-4](https://user-images.githubusercontent.com/115104656/196042282-d0de9e78-d56a-494c-95ce-24501913d1c1.png)
+![kecepatan rossi-5](https://user-images.githubusercontent.com/115104656/196042283-6199af15-572b-4a30-8527-96dfe85a901a.png)
